@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, This is Omar Faruq, a web developer passionate about crafting digital experiences.
 
 
 ## 🌐 Socials:
